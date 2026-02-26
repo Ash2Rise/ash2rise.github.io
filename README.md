@@ -1,1 +1,3 @@
-# Ash2Ash.github.io
+# Ash2Rise — Official Art Portfolio
+
+Acrylic • Knife Texture • Epoxy Wood
